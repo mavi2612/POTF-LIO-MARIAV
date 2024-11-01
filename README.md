@@ -17,7 +17,7 @@ A Psicologia sempre me fascinou porque eu acredito que entender a mente humana �
 
 Vamos nos conectar! Aqui estão minhas redes sociais:
 
-- [Instagram](https://www.instagram.com/maria_nzanetti)
+- [Instagram](https://www.instagram.com/maria_nzanetti/profilecard/?igsh=Z3pnMHdwcWJiZjds)
 - [WhatsApp](https://wa.me/43998202455)
 
 ## Contribuições
