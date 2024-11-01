@@ -3,7 +3,7 @@ PSICOLOGIA
 
 # Olá, Mundo! 👋
 
-Meu nome é [Seu Nome] e sou estudante da segunda série do ensino médio. Meu sonho é cursar Psicologia! Este repositório é um espaço onde compartilho meus estudos, projetos e reflexões sobre essa área fascinante.
+Meu nome é Maria Vitória e sou estudante da segunda série do ensino médio. Meu sonho é cursar Psicologia! Este repositório é um espaço onde compartilho meus estudos, projetos e reflexões sobre essa área fascinante.
 
 ## Sobre Mim
 
